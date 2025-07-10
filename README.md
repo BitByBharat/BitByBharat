@@ -1,4 +1,4 @@
-# 👋 Hi, I'm Bharat Shinde — aka [BitByBharat](https://bitbybharat.com)
+# 👋 Hi, I'm [BitByBharat](https://bitbybharat.com)
 
 🚀 Digital Entrepreneur | 💻 Ex-IT Techie | 🧠 AI Learner | 🏋️‍♂️ Fitness Builder  
 From mainframes to AI tools — I’m rebuilding my second innings, publicly and honestly.
